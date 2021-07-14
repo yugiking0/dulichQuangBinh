@@ -38,7 +38,7 @@ Xe sẽ đưa các bác đến với khu Phong Nha Kẻ Bàng sau khi vượt qu
 
 Mỗi thạch nhũ mỗi dáng vẻ, yêu kiều có, thô ráp có, đường bệ uy nghiêm có hay cả những miếng thạch nhũ bé xinh màu ngọc trong veo đang tiếp tục hứng những giọt nước từ trần hang rơi xuống, để mấy nghin mấy triệu năm nữa lớn lên thêm 1cm =)). Ánh sáng trong hang lung linh như những ngôi sao vô tình rơi xuống và quên đường về với vũ trụ. Các bác vi vu trong hang Thiên Đường, ồ à mắt chữ ô miệng chữ a một chốc là hết buổi sáng. Từ đây có 2 lựa chọn, 1 là về Hang Tối – Sông Chày để ăn và chơi, 2 là về Suối nước Moọc cũng ăn và chơi nhưng ít trò mạo hiểm bay nhảy hơn Hang Tối.
 
-##Bãi cảnh đẹp Quảng Bình
+## Bãi cảnh đẹp Quảng Bình
 
 ---
 
